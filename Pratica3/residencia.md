@@ -1,0 +1,3 @@
+# Expectativas para Residência
+
+As minhas expectativas com a Residência são gigantes. Espero me desenvolver ainda mais como profissional, me especializar ainda mais na área de TI, suprir algumas lacunas que a graduação e a pós-graduação deixaram na minha formação, angariar conteúdo para o trabalho que já realizo na minha profissão, adquirir experiência no trabalho em equipe, desenvolver projetos tecnológicos funcionais e obter êxito em todos esses aspectos.

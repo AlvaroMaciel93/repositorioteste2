@@ -1,0 +1,2 @@
+Olá, meu nome é Álvaro Maciel Cabral Dantas. Sou bacharel em Ciência da Computacação, pós-graduado em Gestão e Governança de TI, com formação pedagógica em Informática.
+Sou professor de Ensino Médio com Curso Técnico em Informática e de Curso Profissionalizante de Informática. Apaixonado por tecnologia funcional.
